@@ -5,9 +5,9 @@ To 67 is to lash out against a cruel and base world, one in which humor has beco
 *Our savior, our one true god has arrived.*
 
 
-![Smoke on the water](https://tenor.com/view/petty-parker-smoke-snoop-dogg-homer-simpson-disappear-gif-17093677)
+<div class="tenor-gif-embed" data-postid="17093677" data-share-method="host" data-aspect-ratio="1.51659" data-width="100%"><a href="https://tenor.com/view/petty-parker-smoke-snoop-dogg-homer-simpson-disappear-gif-17093677">Petty Parker Smoke GIF</a>from <a href="https://tenor.com/search/petty+parker-gifs">Petty Parker GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
 
-![TUNG TUNG SAVIOR](
+![Image](Sahur2.webp)
 
 
 
